@@ -1,1 +1,0 @@
-# T-picos-Especiais-Fatec
